@@ -8,6 +8,7 @@ Let's Connect:
 🔗 Kompasiana: https://www.kompasiana.com/selipurnamasari191934
 
 🎯 Goals:
+
 📖 Mastering Financial Analysis & Digital Accounting.
 
 ✍️ Sharing insights about the future of finance and technology on Kompasiana.
